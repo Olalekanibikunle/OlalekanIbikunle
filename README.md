@@ -75,9 +75,9 @@
 
 ## Contact
 
-- **LinkedIn:** <[Linkedin](https://www.linkedin.com/in/olalekan-ibikunle-22171a274/)>  
+- **LinkedIn:** [Linkedin](https://www.linkedin.com/in/olalekan-ibikunle-22171a274/)
 - **Email:** <Olalekanibikunle08@gmail.com>  
-- **Portfolio:** <your-portfolio-url>
+- **Portfolio:** [Coming soon]
 
 ---
 
