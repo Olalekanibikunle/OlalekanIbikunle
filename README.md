@@ -76,7 +76,7 @@
 ## Contact
 
 - **LinkedIn:** <your-linkedin-url>  
-- **Email:** <your-email>  
+- **Email:** <Olalekanibikunle08@gmail.com>  
 - **Portfolio:** <your-portfolio-url>
 
 ---
